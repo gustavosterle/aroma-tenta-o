@@ -1,2 +1,2 @@
-# aroma-tenta-o
+# aroma & Tentação
 loja de perfumaria
